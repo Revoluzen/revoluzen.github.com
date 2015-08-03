@@ -1,2 +1,2 @@
-# revoluzen.github.com
+# revoluzen.github.io
 Pursue excellence and success will follow.
